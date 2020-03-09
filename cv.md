@@ -1,4 +1,5 @@
 ##Denys Szeptycki  
+![photo](./DSC_1907.png)
 #####Contacts
 Mobile: +48 66 898 1616  
 Email: [sh.denys@gmail.com](mailto:sh.denys@gmail.com)  
